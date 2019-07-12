@@ -1,0 +1,1 @@
+# mazcash.github.io
